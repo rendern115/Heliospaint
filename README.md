@@ -217,4 +217,4 @@ HeliosPaint is offered as a **full free version** with all features and updates 
 Start your creative journey today with HeliosPaint! Download now and explore endless possibilities.
 
 ---
-**Last updated:** 2026-11-11 10:28:42 UTC
+**Last updated:** 2026-11-11 18:26:58 UTC
